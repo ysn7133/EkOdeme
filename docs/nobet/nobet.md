@@ -1,1 +1,0 @@
-# Nöbet Yardım Dokümanı
